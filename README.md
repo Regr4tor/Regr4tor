@@ -1,6 +1,6 @@
 ## Greetings !
 
- ‿‿ Call me Pantalone, Regrator or Average! ‿‿
+ ‿‿ Call me Pantalone or Regrator , nicknames are welcome aswell ! ‿‿
 
 ‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 💰
  
