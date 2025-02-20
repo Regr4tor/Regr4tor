@@ -12,7 +12,7 @@ Discord : 9thharbinger
 
 My [Pronouns.page!](https://en.pronouns.page/@Regr4tor)
 
-My [Carrd]()
+My [Carrd](https://regrat0r.carrd.co)
 
 For Pony town:
 - Dnc / do not copy my ponies please !
