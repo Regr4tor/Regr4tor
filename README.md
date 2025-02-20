@@ -1,10 +1,13 @@
 ## Greetings !
 
  __ Call me Pantalone, Regrator or Average! __
+
+ __ im from germany , i can speak german , english and a little bit of french !
  
 _ Any Pronouns , they/them are preffered tho . __
 
 __ Socials :
+
 Discord : 9thharbinger 
 
 My [Pronouns.page!]()
