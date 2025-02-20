@@ -1,16 +1,17 @@
-## Greetings ! :)
+## Greetings !
 
-<!--
-**Regr4tor/Regr4tor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ __ Call me Pantalone, Regrator or Average! __
+ 
+_ Any Pronouns , they/them are preffered tho . __
 
-Here are some ideas to get you started:
+__ Socials :
+Discord : 9thharbinger 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My [Pronouns.page!]()
+
+My [Carrd]()
+
+For Pony town:
+- Dnc / do not copy my ponies please !
+- Int / interact except if dni is in my name !
+- Cxh / cuddles and hugs , cxh freely !
