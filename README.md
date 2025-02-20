@@ -6,6 +6,8 @@
  
 ‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 💜
 
+‿‿ Pantalone fictkin
+
 ‿‿ Socials :
 
 Discord : 9thharbinger 
