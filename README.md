@@ -10,7 +10,7 @@ __ Socials :
 
 Discord : 9thharbinger 
 
-My [Pronouns.page!]()
+My [Pronouns.page!](https://en.pronouns.page/@Regr4tor)
 
 My [Carrd]()
 
