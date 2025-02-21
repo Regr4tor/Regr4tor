@@ -16,6 +16,8 @@ My [Pronouns.page!](https://en.pronouns.page/@Regr4tor)
 
 My [Carrd](https://regrat0r.carrd.co)
 
+My [Straw.Page](https://regr4tor.straw.page/)
+
 ‿‿ For Pony town:
 - Dnc / do not copy my ponies please !
 - Int / interact except if dni is in my name !
