@@ -12,9 +12,9 @@
 
 Discord : 9thharbinger 
 
-My [Pronouns.page!](https://en.pronouns.page/@Regr4tor)
+My [Pronouns.page!](https://en.pronouns.page/@Regr4tor) / old
 
-My [Carrd](https://regrat0r.carrd.co)
+My [Carrd](https://regrat0r.carrd.co) / old
 
 My [Straw.Page](https://lonez.straw.page) / Updated Version !
 
