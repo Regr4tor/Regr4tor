@@ -6,7 +6,7 @@
  
 ‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 💜
 
-‿‿ Pantalone fictkin
+‿‿ AAAAAAAAAAAAAAAAAAAAAAA
 
 ‿‿ Socials :
 
@@ -16,7 +16,7 @@ My [Pronouns.page!](https://en.pronouns.page/@Regr4tor)
 
 My [Carrd](https://regrat0r.carrd.co)
 
-My [Straw.Page](https://regr4tor.straw.page/)
+My [Straw.Page](https://lonez.straw.page) / Updated Version !
 
 ‿‿ For Pony town:
 - Dnc / do not copy my ponies please !
