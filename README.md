@@ -1,8 +1,8 @@
 ## Greetings !
 
- ‿‿ Call me Pantalone or Regrator , nicknames are welcome aswell ! ‿‿
+ ‿‿ Call me Kokichi or Vexz , nicknames are welcome aswell ! ‿‿
 
-‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 💰
+‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ <3
  
 ‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 💜
 
@@ -10,7 +10,7 @@
 
 ‿‿ Socials :
 
-Discord : 9thharbinger 
+Discord : Kokichiie
 
 My [Pronouns.page!](https://en.pronouns.page/@Regr4tor) / old
 
