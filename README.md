@@ -1,10 +1,10 @@
 ## Greetings !
 
- ‿‿ Call me Kokichi or Vexz , nicknames are welcome aswell ! ‿‿
+ ‿‿ Call me Kokichi or telamon , nicknames are welcome aswell ! ‿‿
 
-‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ <3
+‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 
  
-‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 💜
+‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 
 
 ‿‿ AAAAAAAAAAAAAAAAAAAAAAA
 
