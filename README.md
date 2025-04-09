@@ -1,6 +1,6 @@
 ## Greetings !
 
- ‿‿ Call me Kokichi or telamon , nicknames are welcome aswell ! ‿‿
+ ‿‿ Call me builderman or telamon , nicknames are welcome aswell ! ‿‿
 
 ‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 
  
