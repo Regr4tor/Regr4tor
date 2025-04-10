@@ -13,7 +13,7 @@
 
 Discord : Kokichiie
 
-My [Pronouns.page!](https://en.pronouns.page/@Regr4tor) / old
+My [Pronouns.page!](https://en.pronouns.page/@Regr4tor) / new
 
 My [Carrd](https://regrat0r.carrd.co) / old
 
