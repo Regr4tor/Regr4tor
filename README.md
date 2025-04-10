@@ -1,6 +1,7 @@
 ## Greetings !
 
- ‿‿ Call me builderman or telamon , nicknames are welcome aswell ! ‿‿
+ ‿‿ Call me builderman or telamon , nicknames are welcome aswell ! ‿‿ 
+ (past names: Pantalone, Kokichi, Vexz, Lone \
 
 ‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 
  
