@@ -7,7 +7,7 @@
  
 ‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 
 
-‿‿ AAAAAAAAAAAAAAAAAAAAAAA
+‿‿ well, uh nothing more to say..
 
 ‿‿ Socials :
 
