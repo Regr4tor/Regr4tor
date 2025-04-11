@@ -1,25 +1,8 @@
-## Greetings !
-
- ‿‿ Call me builderman or telamon , nicknames are welcome aswell ! ‿‿ 
- (past names: Pantalone, Kokichi, Vexz, Lone \
-
-‿ ‿ im from germany , i can speak german , english and a little bit of french ! ‿‿ 
- 
-‿ ‿ Any Pronouns , they/them are preffered tho . ‿‿ 
-
-‿‿ well, uh nothing more to say..
-
-‿‿ Socials :
-
-Discord : Kokichiie
-
-My [Pronouns.page!](https://en.pronouns.page/@Regr4tor) / new
-
-My [Carrd](https://regrat0r.carrd.co) / old
-
-My [Straw.Page](https://lonez.straw.page) / Updated Version !
+## under construction ^_^
 
 ‿‿ For Pony town:
 - Dnc / do not copy my ponies please !
 - Int / interact except if dni is in my name !
 - Cxh / cuddles and hugs , cxh freely !
+
+- Discord: kokichiie , feel free to add me ! 
