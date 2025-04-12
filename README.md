@@ -5,4 +5,13 @@
 - Int / interact except if dni is in my name !
 - Cxh / cuddles and hugs , cxh freely !
 
-- Discord: kokichiie , feel free to add me ! 
+
+  __ Stuff about me !!
+  - rentry link here /wip
+  - pronouns.page here /wip
+  - carrd link here /wip
+  - pronouns.cc here /wip
+
+
+    
+__ not overworking myself anytime soon to get all the info pages done , bleh , come back next month
