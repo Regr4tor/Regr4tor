@@ -11,7 +11,8 @@
   - pronouns.page here /wip
   - carrd link here /wip
   - pronouns.cc here /wip
-
+  - straw.page here /check linked profile stuff
+  
 
     
 __ not overworking myself anytime soon to get all the info pages done , bleh , come back next month
