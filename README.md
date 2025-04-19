@@ -8,7 +8,7 @@
 
   __ Stuff about me !!
   - rentry link here /wip
-  - pronouns.page here /wip
+  - [pronouns.page](https://en.pronouns.page/@Regr4tor)
   - carrd link here /wip
   - pronouns.cc here /wip
   - straw.page here /check linked profile stuff
