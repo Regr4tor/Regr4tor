@@ -3,7 +3,7 @@
 ‿‿ For Pony town:
 - Dnc / do not copy my ponies please !
 - Int / interact except if dni is in my name !
-- Cxh / cuddles and hugs , cxh freely !
+- Cxh / cuddles and hiding , cxh freely ! 
 
 
   __ Stuff about me !!
